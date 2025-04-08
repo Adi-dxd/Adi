@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **adityakumar19240@gmail.com**
 
-<h3 align="left">Connect with me: www.linkedin.com/in/aditya-kumar-0038a335a
 </h3>
 <p align="left">
 </p>
